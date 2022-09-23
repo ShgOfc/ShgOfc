@@ -1,1 +1,1 @@
-just a normal person im github
+just a normal person in github
